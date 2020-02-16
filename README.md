@@ -20,8 +20,7 @@ Esmeralda is described as a White (Hispanic) American female, born September 16,
 
 It is believed that Aranza and Esmeralda may be residing or traveling in Mexico with Esmeralda's boyfriend, Gabriel Garcia Santos.
 
-If you have any information concerning the location of these three individuals, please call the FBI's Seattle Field Office at
-(206) 622-0460. Tips may also be submitted anonymously online at tips.fbi.gov.
+### If you have any information concerning the location of these three individuals, please call the FBI's Seattle Field Office at (206) 622-0460. Tips may also be submitted anonymously online at tips.fbi.gov.
 
 ### You may also contact your local FBI office, or the nearest American Embassy or Consulate.
 ### Field Office: Seattle
